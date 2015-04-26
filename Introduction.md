@@ -1,0 +1,11 @@
+# Website #
+
+http://www.itonghui.com/
+
+# Introduction #
+
+Anhui Tonghui Information Technology Company Limited (referred to as: Tonghui company) is a well-known e-commerce technology and service providers, companies rely on the Chinese Academy of Sciences, strong research and development capabilities, innovation, research and development efforts in electronic commerce system.
+
+Tonghui company since its inception has been dedicated to providing the e-commerce site, for the enterprise transaction system consulting and product development. With the core product seal with the emblem of B2B (THB2B) with the same emblem of independent research and development of TH-BPM as the kernel of B2B (enterprise) software products, in the domestic B2B network program influence ranked first, provide technical and service for a plurality of ministerial-level units and five hundred strong enterprise e-commerce platform support, the typical customers include: the Ministry of Commerce, the Ministry of agriculture Cheng network platform of electronic business affairs, Baosteel Group, DESAY group, Shenzhen Zhongnong company, CIMC, Shanghai Yongxiang group, by the same emblem B2B electronic commerce platform building more than 15000000 cumulative service enterprises, the transaction volume of over 50000000000.
+
+Tonghui company achieved rapid development for several years, is a national high-tech enterprises, to undertake a Ministry of science and technology innovation project of research and development of B2B e-commerce platform, won a number of Anhui province was identified as high-tech products and technological achievements, has sixteen software copyrights and multiple software product certification, quality corporate executive council, electronic commerce in Anhui Province Association of Anhui province Internet Association member units, Hefei city.
